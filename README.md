@@ -1,0 +1,1 @@
+# natural.resourses12
